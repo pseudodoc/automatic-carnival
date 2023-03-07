@@ -1,1 +1,1 @@
-Peanuts aren’t nuts — they’re legumes.
+There are more stars in the universe than grains of sand on Earth.
