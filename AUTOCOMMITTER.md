@@ -1,1 +1,1 @@
-You can’t hum while holding your nose closed.
+A bolt of lightning travels at about 270,000 mph.
