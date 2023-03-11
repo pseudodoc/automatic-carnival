@@ -1,1 +1,1 @@
-The hashtag symbol used to be called the pound sign.
+You can’t hum while holding your nose closed.
