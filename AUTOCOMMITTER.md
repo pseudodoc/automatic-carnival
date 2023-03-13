@@ -1,1 +1,1 @@
-It rains diamonds on Jupiter and Saturn.
+Peanuts aren’t nuts — they’re legumes.
