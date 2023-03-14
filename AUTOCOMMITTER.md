@@ -1,1 +1,1 @@
-There are more stars in the universe than grains of sand on Earth.
+The human stomach gets a new lining every few days.
