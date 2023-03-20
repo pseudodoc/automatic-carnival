@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+A human could swim through a blue whale’s arteries.
