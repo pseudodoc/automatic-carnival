@@ -1,1 +1,1 @@
-A human could swim through a blue whale’s arteries.
+Peanuts aren’t nuts — they’re legumes.
