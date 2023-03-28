@@ -1,1 +1,1 @@
-Peanuts aren’t nuts — they’re legumes.
+A day on Earth used to be only 18 hours long.
