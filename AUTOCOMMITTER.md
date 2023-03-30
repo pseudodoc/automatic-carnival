@@ -1,1 +1,1 @@
-A bolt of lightning strikes somewhere on Earth 100 times every second.
+Humans are bioluminescent — we glow, but our eyes can’t detect it.
