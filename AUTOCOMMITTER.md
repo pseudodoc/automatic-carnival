@@ -1,1 +1,1 @@
-Humans are bioluminescent — we glow, but our eyes can’t detect it.
+Elephants are the only animals that can’t jump.
