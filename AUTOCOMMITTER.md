@@ -1,1 +1,1 @@
-The tongue is the only muscle in the body attached from one end.
+Hot water freezes faster than cold water — it’s called the Mpemba effect.
