@@ -1,1 +1,1 @@
-A day on Earth used to be only 18 hours long.
+Sea otters hold hands when they sleep to avoid drifting apart.
