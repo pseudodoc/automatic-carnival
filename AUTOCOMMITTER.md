@@ -1,1 +1,1 @@
-Sea otters hold hands when they sleep to avoid drifting apart.
+The total weight of all ants on Earth is roughly equal to that of all humans.
