@@ -1,1 +1,1 @@
-The total weight of all ants on Earth is roughly equal to that of all humans.
+A bolt of lightning strikes somewhere on Earth 100 times every second.
