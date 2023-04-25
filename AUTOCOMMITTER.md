@@ -1,1 +1,1 @@
-One spaghetti noodle is called a spaghetto.
+Your brain uses the same amount of power as a 10-watt lightbulb.
