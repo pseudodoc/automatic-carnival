@@ -1,1 +1,1 @@
-Koalas have fingerprints that are nearly identical to humans.
+One spaghetti noodle is called a spaghetto.
