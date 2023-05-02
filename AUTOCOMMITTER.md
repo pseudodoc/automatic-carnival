@@ -1,1 +1,1 @@
-Your brain uses the same amount of power as a 10-watt lightbulb.
+The total weight of all ants on Earth is roughly equal to that of all humans.
