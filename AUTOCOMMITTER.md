@@ -1,1 +1,1 @@
-There are more stars in the universe than grains of sand on Earth.
+A bolt of lightning strikes somewhere on Earth 100 times every second.
