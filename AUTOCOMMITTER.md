@@ -1,1 +1,1 @@
-The hashtag symbol used to be called the pound sign.
+Bubble wrap was originally intended to be wallpaper.
