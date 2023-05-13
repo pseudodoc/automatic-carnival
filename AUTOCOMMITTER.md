@@ -1,1 +1,1 @@
-The inventor of the frisbee was turned into a frisbee after he died.
+Your brain uses the same amount of power as a 10-watt lightbulb.
