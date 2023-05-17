@@ -1,1 +1,1 @@
-Bubble wrap was originally intended to be wallpaper.
+Goats have rectangular pupils.
