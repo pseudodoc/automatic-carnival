@@ -1,1 +1,1 @@
-Humans glow in the dark — very faintly.
+Birds don’t urinate.
