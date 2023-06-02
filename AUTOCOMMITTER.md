@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+There are more fake flamingos in the world than real ones.
