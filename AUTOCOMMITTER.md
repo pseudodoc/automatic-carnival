@@ -1,1 +1,1 @@
-A group of crows is called a murder.
+Some cats are allergic to humans.
