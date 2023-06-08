@@ -1,1 +1,1 @@
-Birds don’t urinate.
+A human could swim through a blue whale’s arteries.
