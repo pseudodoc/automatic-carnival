@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+The wood frog can hold its pee for up to eight months.
