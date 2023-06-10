@@ -1,1 +1,1 @@
-The wood frog can hold its pee for up to eight months.
+Humans glow in the dark — very faintly.
