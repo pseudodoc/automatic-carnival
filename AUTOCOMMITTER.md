@@ -1,1 +1,1 @@
-A group of crows is called a murder.
+A human could swim through a blue whale’s arteries.
