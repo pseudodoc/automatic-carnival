@@ -1,1 +1,1 @@
-A human could swim through a blue whale’s arteries.
+Humans are bioluminescent — we glow, but our eyes can’t detect it.
