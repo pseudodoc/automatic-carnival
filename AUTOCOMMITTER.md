@@ -1,1 +1,1 @@
-Humans are bioluminescent — we glow, but our eyes can’t detect it.
+The average person walks the equivalent of five times around the world in a lifetime.
