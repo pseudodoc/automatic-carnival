@@ -1,1 +1,1 @@
-Pineapples take two years to grow.
+Some cats are allergic to humans.
