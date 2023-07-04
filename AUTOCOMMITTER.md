@@ -1,1 +1,1 @@
-Some cats are allergic to humans.
+Tigers have striped skin, not just striped fur.
