@@ -1,1 +1,1 @@
-Tigers have striped skin, not just striped fur.
+You can hear a blue whale’s heartbeat from over 2 miles away.
