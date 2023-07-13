@@ -1,1 +1,1 @@
-There’s a species of jellyfish that can live forever.
+Antarctica is the only continent without reptiles.
