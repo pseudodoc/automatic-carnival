@@ -1,1 +1,1 @@
-Bees sometimes sting other bees.
+Newborns don’t shed tears until about two weeks old.
