@@ -1,1 +1,1 @@
-Tigers have striped skin, not just striped fur.
+The first oranges weren’t orange — they were green.
