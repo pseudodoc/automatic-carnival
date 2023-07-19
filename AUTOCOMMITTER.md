@@ -1,1 +1,1 @@
-It rains diamonds on Jupiter and Saturn.
+There’s a species of jellyfish that can live forever.
