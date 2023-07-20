@@ -1,1 +1,1 @@
-Antarctica is the only continent without reptiles.
+Bees sometimes sting other bees.
