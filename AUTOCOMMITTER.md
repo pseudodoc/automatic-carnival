@@ -1,1 +1,1 @@
-Newborns don’t shed tears until about two weeks old.
+Tigers have striped skin, not just striped fur.
