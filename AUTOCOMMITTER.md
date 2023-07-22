@@ -1,1 +1,1 @@
-The first oranges weren’t orange — they were green.
+You can’t sneeze with your eyes open.
