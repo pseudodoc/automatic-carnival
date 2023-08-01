@@ -1,1 +1,1 @@
-A day on Venus is longer than a year on Venus.
+The inventor of the frisbee was turned into a frisbee after he died.
