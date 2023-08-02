@@ -1,1 +1,1 @@
-Mantis shrimp can punch with the speed of a bullet.
+A day on Venus is longer than a year on Venus.
