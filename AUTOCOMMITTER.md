@@ -1,1 +1,1 @@
-You can’t sneeze with your eyes open.
+Bubble wrap was originally intended to be wallpaper.
