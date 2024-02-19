@@ -1,1 +1,1 @@
-Frogs absorb water through their skin — they don’t drink it.
+Antarctica is the only continent without reptiles.
