@@ -1,1 +1,1 @@
-Pineapples take two years to grow.
+A narwhal’s tusk reveals its health and diet.
