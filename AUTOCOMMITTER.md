@@ -1,1 +1,1 @@
-A narwhal’s tusk reveals its health and diet.
+An apple, potato, and onion all taste the same if you eat them with your nose plugged.
