@@ -1,1 +1,1 @@
-Humans are the only animals with chins.
+Frogs absorb water through their skin — they don’t drink it.
