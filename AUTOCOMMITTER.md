@@ -1,1 +1,1 @@
-Antarctica is the only continent without reptiles.
+The average person walks the equivalent of five times around the world in a lifetime.
