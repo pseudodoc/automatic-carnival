@@ -1,1 +1,1 @@
-An apple, potato, and onion all taste the same if you eat them with your nose plugged.
+The dot over the "i" and "j" is called a tittle.
