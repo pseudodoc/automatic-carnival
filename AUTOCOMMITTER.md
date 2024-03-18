@@ -1,1 +1,1 @@
-The hashtag symbol is technically called an octothorpe.
+The hashtag symbol used to be called the pound sign.
