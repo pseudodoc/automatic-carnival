@@ -1,1 +1,1 @@
-The inventor of the frisbee was turned into a frisbee after he died.
+Some cats are allergic to humans.
