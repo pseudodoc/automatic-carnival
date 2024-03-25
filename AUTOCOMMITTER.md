@@ -1,1 +1,1 @@
-The hashtag symbol used to be called the pound sign.
+A human could swim through a blue whale’s arteries.
