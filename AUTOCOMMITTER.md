@@ -1,1 +1,1 @@
-A human could swim through a blue whale’s arteries.
+Most wasabi isn’t real wasabi — it’s colored horseradish.
