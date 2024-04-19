@@ -1,1 +1,1 @@
-Sloths can hold their breath longer than dolphins can.
+Frogs absorb water through their skin — they don’t drink it.
