@@ -1,1 +1,1 @@
-Some cats are allergic to humans.
+Cows can walk up stairs but not down.
