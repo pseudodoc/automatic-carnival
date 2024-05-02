@@ -1,1 +1,1 @@
-The average person walks the equivalent of five times around the world in a lifetime.
+It rains diamonds on Jupiter and Saturn.
