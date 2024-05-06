@@ -1,1 +1,1 @@
-Cows can walk up stairs but not down.
+Chewing gum while cutting onions can help prevent tears.
