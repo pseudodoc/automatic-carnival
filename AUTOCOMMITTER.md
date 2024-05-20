@@ -1,1 +1,1 @@
-Chewing gum while cutting onions can help prevent tears.
+Butterflies can taste with their feet.
