@@ -1,1 +1,1 @@
-Hot water freezes faster than cold water — it’s called the Mpemba effect.
+The longest hiccuping spree lasted 68 years.
