@@ -1,1 +1,1 @@
-The longest hiccuping spree lasted 68 years.
+Humans share about 60% of their DNA with bananas.
