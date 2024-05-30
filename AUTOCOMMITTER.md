@@ -1,1 +1,1 @@
-Humans share about 60% of their DNA with bananas.
+The inventor of the microwave received only $2 for his discovery.
