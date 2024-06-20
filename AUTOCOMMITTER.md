@@ -1,1 +1,1 @@
-Sharks existed before trees.
+The human stomach gets a new lining every few days.
