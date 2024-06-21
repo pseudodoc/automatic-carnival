@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+The dot over the "i" and "j" is called a tittle.
