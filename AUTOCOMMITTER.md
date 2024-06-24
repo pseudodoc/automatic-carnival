@@ -1,1 +1,1 @@
-Coca-Cola would be green without coloring.
+You can hear a blue whale’s heartbeat from over 2 miles away.
