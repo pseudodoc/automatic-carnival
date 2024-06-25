@@ -1,1 +1,1 @@
-Your fingernails grow faster on your dominant hand.
+Coca-Cola would be green without coloring.
