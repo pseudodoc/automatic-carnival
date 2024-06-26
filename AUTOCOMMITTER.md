@@ -1,1 +1,1 @@
-The dot over the "i" and "j" is called a tittle.
+Your fingernails grow faster on your dominant hand.
