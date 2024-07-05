@@ -1,1 +1,1 @@
-Otters have a favorite rock they use to break open food.
+Scotland has 421 words for "snow."
