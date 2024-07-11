@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+Cows moo with regional accents.
