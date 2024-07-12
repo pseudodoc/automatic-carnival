@@ -1,1 +1,1 @@
-Cows moo with regional accents.
+Otters have a favorite rock they use to break open food.
