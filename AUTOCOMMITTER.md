@@ -1,1 +1,1 @@
-Antarctica is the only continent without reptiles.
+A group of flamingos is called a "flamboyance."
