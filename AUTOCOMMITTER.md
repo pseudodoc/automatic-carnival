@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+A bolt of lightning strikes somewhere on Earth 100 times every second.
