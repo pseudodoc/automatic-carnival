@@ -1,1 +1,1 @@
-The word "strengths" is the longest word with one vowel.
+Antarctica is the only continent without reptiles.
