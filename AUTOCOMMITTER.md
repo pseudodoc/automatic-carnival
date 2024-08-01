@@ -1,1 +1,1 @@
-A group of flamingos is called a "flamboyance."
+An apple, potato, and onion all taste the same if you eat them with your nose plugged.
