@@ -1,1 +1,1 @@
-Scotland has 421 words for "snow."
+A group of ferrets is called a "business."
