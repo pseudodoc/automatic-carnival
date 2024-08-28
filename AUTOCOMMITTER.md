@@ -1,1 +1,1 @@
-A group of ferrets is called a "business."
+There are more fake flamingos in the world than real ones.
