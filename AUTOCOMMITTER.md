@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+A day on Earth used to be only 18 hours long.
