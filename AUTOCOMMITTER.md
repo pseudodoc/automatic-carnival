@@ -1,1 +1,1 @@
-A day on Earth used to be only 18 hours long.
+Sharks are the only fish that can blink with both eyes.
