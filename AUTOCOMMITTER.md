@@ -1,1 +1,1 @@
-Sharks are the only fish that can blink with both eyes.
+Bubble wrap was originally intended to be wallpaper.
