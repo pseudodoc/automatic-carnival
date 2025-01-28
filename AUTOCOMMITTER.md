@@ -1,1 +1,1 @@
-Mantis shrimp can punch with the speed of a bullet.
+A bolt of lightning is hotter than the surface of the sun.
