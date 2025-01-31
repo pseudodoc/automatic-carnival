@@ -1,1 +1,1 @@
-Most wasabi isn’t real wasabi — it’s colored horseradish.
+The tongue is the only muscle in the body attached from one end.
