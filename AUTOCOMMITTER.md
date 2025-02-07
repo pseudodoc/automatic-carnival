@@ -1,1 +1,1 @@
-The tongue is the only muscle in the body attached from one end.
+Sharks are the only fish that can blink with both eyes.
