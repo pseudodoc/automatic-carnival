@@ -1,1 +1,1 @@
-A bolt of lightning is hotter than the surface of the sun.
+Snails can sleep for three years at a time.
