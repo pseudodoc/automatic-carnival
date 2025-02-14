@@ -1,1 +1,1 @@
-Sharks are the only fish that can blink with both eyes.
+Otters have a favorite rock they use to break open food.
