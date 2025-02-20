@@ -1,1 +1,1 @@
-Otters have a favorite rock they use to break open food.
+Humans are the only animals with chins.
