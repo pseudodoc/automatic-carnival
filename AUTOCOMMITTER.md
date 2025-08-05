@@ -1,1 +1,1 @@
-The inventor of the microwave received only $2 for his discovery.
+Water can boil and freeze at the same time — it’s called the triple point.
