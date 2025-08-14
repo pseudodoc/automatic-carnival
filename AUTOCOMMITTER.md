@@ -1,1 +1,1 @@
-Elephants are the only animals that can’t jump.
+The world’s largest snowflake was 15 inches wide.
