@@ -1,1 +1,1 @@
-You can’t sneeze with your eyes open.
+Your fingernails grow faster on your dominant hand.
