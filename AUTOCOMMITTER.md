@@ -1,1 +1,1 @@
-Bananas are berries, but strawberries are not.
+A group of flamingos is called a "flamboyance."
