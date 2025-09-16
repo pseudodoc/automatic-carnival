@@ -1,1 +1,1 @@
-Your fingernails grow faster on your dominant hand.
+Bees sometimes sting other bees.
