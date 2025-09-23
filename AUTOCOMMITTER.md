@@ -1,1 +1,1 @@
-Bees sometimes sting other bees.
+Elephants are the only animals that can’t jump.
