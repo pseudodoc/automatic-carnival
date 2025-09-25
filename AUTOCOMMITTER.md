@@ -1,1 +1,1 @@
-Snails can sleep for three years at a time.
+The inventor of the microwave received only $2 for his discovery.
